@@ -1,0 +1,1 @@
+# Dictionaries-of-emotional-assessment-in-finance
